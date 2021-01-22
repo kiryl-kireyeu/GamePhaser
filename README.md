@@ -1,1 +1,1 @@
-Little game for little kids
+Little game for little kids!
